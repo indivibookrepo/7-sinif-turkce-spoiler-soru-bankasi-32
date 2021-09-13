@@ -1,0 +1,1 @@
+# 7-sinif-turkce-spoiler-soru-bankasi-32
